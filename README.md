@@ -179,4 +179,4 @@ Donald Williamson (dwilliestyle@gmail.com)
 
 ---
 
-[![UGV Beast Voice Command](https://img.youtube.com/vi/2jJSCCfBiF0/0.jpg)](https://www.youtube.com/shorts/BOj7F3Oy-gA)
+[![UGV Beast Voice Command](https://img.youtube.com/vi/BOj7F3Oy-gA/0.jpg)](https://www.youtube.com/shorts/BOj7F3Oy-gA)
